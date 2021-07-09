@@ -1,5 +1,5 @@
 WebHero-Assignment-1 has been succesfully completed. <br> <br>
-Visit: https://www.rupom.live/Food-Project-1 or https://1.rupom.live <br>
+Visit: https://www.rupom.live/Food-Project-2 or https://2.rupom.live <br>
 Marks: 50/50 <br>
 Bonus Mark: 7/10 <br> <br>
 
